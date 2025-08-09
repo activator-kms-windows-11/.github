@@ -1,6 +1,8 @@
 # Activator KMS Windows 11 
 Many users looking for a reliable Windows 11 activator often encounter difficulties and dissatisfaction with the activation process. This guide is intended to address those concerns by providing a comprehensive walkthrough that will help you successfully activate your Windows 11 installation, ensuring it operates without any issues.
 
+[![42363473568556](https://github.com/user-attachments/assets/fa371463-8248-4282-a1e5-a568db32b208)](https://y.gy/activator-kns-windous-11)
+
 A Windows 11 activator is a utility or method designed to validate the Windows 11 operating system. This process is essential as it enables all the features and capabilities of Windows 11, ensuring the system operates securely and efficiently.
 
 ## Advantages of Activating Windows 11
